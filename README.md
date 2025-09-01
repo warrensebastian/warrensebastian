@@ -1,8 +1,6 @@
  Hi, I’m @warrensebastian
  I’m interested in teaching
-How to reach me 0793050001
- Pronouns: He,Him
- Fun fact: I am very tall
+ Super single 
 
 <!---
 warrensebastian/warrensebastian is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
